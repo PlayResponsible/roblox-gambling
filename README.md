@@ -5,7 +5,7 @@
 *The information provided in this guide is for informational purposes only. Please note that the Roblox Gambling Sites discussed here are not really legit, and engaging with them can expose you to significant risks.*
 
 ## Advertised Links
-For those still interested in exploring Roblox Gambling Sites, here are three links provided for informational purposes only. **Remember: Gambling is a bad decision. You must be 18+, and these sites are not legit. Interacting with these sites may even lead to a ban on your Roblox account.**
+For those still interested in exploring Roblox Gambling Sites, here are three affiliate links. **Remember: Gambling is a bad decision. You must be 18+, and these sites are not legit. Interacting with these sites may even lead to a ban on your Roblox account.**
 
 - [Rbxgold.com](https://rbxgold.com/r/Roblox9)
 - [Bloxempire.com](https://bloxempire.com/a/Roblox9)
